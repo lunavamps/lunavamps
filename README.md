@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @lunavamps
+- 👀 I’m interested in hardcore CBT!
+- 🌱 I’m currently learning bondage braids!
+- 💞️ I’m looking to collaborate with hot singles, 40+ only pls!
+- 📫 How to reach me: Tinder
